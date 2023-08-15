@@ -1,2 +1,1 @@
-# rrfe3.com
-custom_emoji wo koko ni noseru yotei desu.
+###### rrfe3.com
