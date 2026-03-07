@@ -1,3 +1,5 @@
+参戦履歴🫠
+
 **2026**  
 ロキソニ
 
@@ -13,3 +15,8 @@ CDJ25/26
 **2023**  
 愛ペガ : 横須賀 東京①④ (dayoff)  
 ソニマニ
+
+--
+
+[X 🕊️](https://x.com/rrfe_ztmy)  
+[Instagram 📷](https://www.instagram.com/rrfe_ztmy/)
