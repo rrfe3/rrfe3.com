@@ -1,2 +1,17 @@
-<p style="font-size: 10px; color: gray;">rrfe3.com</p>
-<span style="font-size: 10px; color: gray;">For Misskey.</span>
+参戦履歴🙃
+
+### 2026
+ロキソニ
+
+### 2025
+CDJ25/26
+コズ団 : 愛知①② 神奈川①② 東京ガーデンシアター②🎄  
+名巧 : 神奈川①②  千葉①② 大阪①② 代々木①② 
+
+### 2024
+砂猫 : 東京① 千葉🎄  
+羅武ペガ : ①②
+
+### 2023
+愛ペガ : 横須賀 東京①④ (dayoff)  
+ソニマニ
