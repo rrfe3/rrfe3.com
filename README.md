@@ -25,4 +25,5 @@ CDJ25/26
 --
 
 photo-cleaner  
-https://photo-cleaner.rrfe3.com/  
+<a href="https://photo-cleaner.rrfe3.com/" target="_blank" rel="noopener noreferrer" style="margin-bottom: 7px; display: inline-block;">https://photo-cleaner.rrfe3.com/</a>
+
