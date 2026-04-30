@@ -23,7 +23,3 @@ CDJ25/26
 <a href="https://www.threads.com/@rrfe_ztmy" target="_blank" rel="noopener noreferrer" style="margin-bottom: 7px; display: inline-block;">＠ threads</a>
 
 --
-
-photo-cleaner  
-<a href="https://photo-cleaner.rrfe3.com/" target="_blank" rel="noopener noreferrer" style="margin-bottom: 7px; display: inline-block;">https://photo-cleaner.rrfe3.com/</a>
-
